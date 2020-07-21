@@ -1,4 +1,4 @@
-### ey 👋 :100:
+### drinking :coffee: and coding, on repeat :100:
 
 <!--
 **alecla/alecla** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
