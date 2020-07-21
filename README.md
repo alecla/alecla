@@ -1,4 +1,4 @@
-### drinking :coffee: and coding, on repeat :100:
+### :zap::zap::zap::zap::zap:
 
 <!--
 **alecla/alecla** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
